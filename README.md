@@ -1,4 +1,4 @@
 # Names
 Om jannu
-Anushka 
-Amisha Verma
+Anushka
+Amisha 
